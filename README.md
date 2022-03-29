@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ryzraktr
+- 👀 I’m interested in python and html(anything to do w/ html)
+- 🌱 I’m currently learning HTML 
+- 📫 How to reach me: discord ryzraktr#9609
